@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @zenerbufen
 - 👀 I’m interested in ... space!
-- 🌱 I’m currently learning ...   Mechanical, Civil, Aeronautical, Industrial, and Materials Science; Earth and Space Exploration(Systems Design Programing)
+- 🌱 I’m currently learning ...   Mechanical, Civil, Aeronautical, Industrial, and Materials Science; Engineering: Other AS-T/MRP; Earth and Space Exploration (Systems Design) BS w/ minor in programing
 - 💞️ I’m looking to collaborate on ... fun stuff
 - 📫 How to reach me ... telepathy
 
